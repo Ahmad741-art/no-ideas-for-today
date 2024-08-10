@@ -1,1 +1,1 @@
-# no-ideas-for-today
+# no-idea
